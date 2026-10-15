@@ -2,8 +2,8 @@
 
 Data scientist with an industrial engineering background. An explorer and a facts-and-figures person.
 
-### Off the keyboard
-Coaching football, playing tennis, shaping clay, and eating an unreasonable amount of bell peppers.
+When I'm not tinkering with tech, you'll probably find me coaching football, playing tennis, shaping clay or watching The Office (again).
+Also, I may or may not be addicted to bell peppers. Especially the red ones.
 
 ---
 
